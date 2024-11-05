@@ -1,4 +1,4 @@
-## Capcut Accounts 🔥
+## Capcut 𝐏𝐑𝐎 Accounts 🔥
 
 🖥 Site- www.capcut.com
 🔖 Format- Email:Pass | Full Capture
